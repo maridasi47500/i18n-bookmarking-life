@@ -15,4 +15,4 @@ phone number, or communications, writing  posts, you d'ont have to write online,
 - 
 - mail , sms, cmmunication X
 -  
--  
+- skill conersation 
