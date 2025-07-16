@@ -15,5 +15,5 @@ phone number, or communications, writing  posts, you d'ont have to write online,
 - 
 - mail , sms, cmmunication X
 -  
-- apply letter / job / foyer
+- apply letter / job / 
 - apply letter / job , skill in tech,  skill in sms X
